@@ -1,1 +1,1 @@
-# rushikeshshinde45-Cosmetics-Website-E--Commerce
+# Cosmetics-Website-E--Commerce
